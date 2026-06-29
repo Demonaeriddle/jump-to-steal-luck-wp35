@@ -1,4 +1,4 @@
-#  
+#  jump to steal lucky blocks Script elite is the best jump to steal lucky blocks Script, featuring no clip and one-hit kill. Safe and powerful for all
 
 
 
